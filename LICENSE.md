@@ -1,4 +1,4 @@
-#  
+#  Experience baddies like never before with custom Scripts for baddies, the #1 Script. Includes teleport and auto-sell for unbeatable performance.
 
 
 
